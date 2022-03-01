@@ -1,3 +1,3 @@
 Hello buddy, it's George Muigai. 
-I'm in Africa.
+I'm in Africa chilling the moment.
 
