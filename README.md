@@ -1,2 +1,3 @@
-hello buddy, I'm in Africa
-George Muigai
+Hello buddy, it's George Muigai. 
+I'm in Africa.
+
